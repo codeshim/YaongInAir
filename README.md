@@ -9,7 +9,7 @@
 
 
 ## 프로젝트 링크   
-[플레이영상링크](https://player.vimeo.com/video/487940565?autoplay=1&amp;loop=0&amp;rel=0)  
+[플레이영상링크](https://youtu.be/CtcPskkJj0M)  
 
 
 <div>
