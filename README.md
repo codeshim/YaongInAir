@@ -9,7 +9,7 @@
 
 
 ## 프로젝트 링크   
-[플레이영상링크](https://youtu.be/CtcPskkJj0M)  
+[플레이영상링크](https://youtu.be/BKnR5pO6Gzo)  
 
 
 <div>
